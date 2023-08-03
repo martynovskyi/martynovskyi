@@ -2,7 +2,7 @@ Vitalii Martynovskyi
 ====
 Location: Ukraine<br/>
 Contact: vitalii@motokyi.com<br/>
-LinkedIn: remotely<br/>
+LinkedIn: https://www.linkedin.com/in/vitalii-martynovskyi-12425a37<br/>
 Working: remotely<br/>
 
 -----
